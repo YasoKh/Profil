@@ -1,3 +1,9 @@
-# En kreativ tjej som pluggar webbutveckling
+# Hejsan! :) 
 Mitt namn är Yasmeen Khaseem, och jag är 28 år gammal. Jag har studerat grafisk design vid *Malmö universitet* och ville utforska något nytt som skulle vara relevant för min utbildning. Därför valde jag att studera webbutveckling. Jag finner det mycket intressant eftersom jag vill lära mig att skapa webbsidor. Jag anser att grafisk design och webbutveckling kompletterar varandra väl. 
-<br><strong><em>På min fritid gillar jag att ta en promenad, läsa en bok och brodera </strong></em>
+- På min fritid gillar jag att ta en promenad, läsa en bok och brodera
+
+**/Yasmeen**
+
+Kontakt info:
+1. E-postadress: (yasmeenqassim95@hotmail.com)
+2. Mobil: 0720154232
