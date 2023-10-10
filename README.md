@@ -5,5 +5,5 @@ Mitt namn är Yasmeen Khaseem, och jag är 28 år gammal. Jag har studerat grafi
 **/Yasmeen**
 
 Kontakt info:
-1. E-postadress: (yasmeenqassim95@hotmail.com)
-2. Mobil: 0720154232
+-  E-postadress: (yasmeenqassim95@hotmail.com)
+-  Mobil: 0720154232
